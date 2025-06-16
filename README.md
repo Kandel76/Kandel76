@@ -10,6 +10,6 @@ Senior Executive Director of Cross-Disciplinary Thought Leadership in Scalable M
 
 -not trying to lose sanity
 
--dance
+-Learning to dance
 
 
